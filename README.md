@@ -1,0 +1,1 @@
+# studiengangicon
